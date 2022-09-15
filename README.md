@@ -2,4 +2,4 @@
 - 👀 I’m interested in video games
 - 🌱 I’m currently learning Technology Topics
 - 💞️ I’m looking to collaborate on epic gaming
-- 📫 How to reach mepatpenguin45@gmail.com
+- 📫 How to reach me patpenguin45@gmail.com
