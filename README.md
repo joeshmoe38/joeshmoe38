@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @joeshmoe38
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning Technology Topics
+- 💞️ I’m looking to collaborate on epic gaming
+- 📫 How to reach mepatpenguin45@gmail.com
